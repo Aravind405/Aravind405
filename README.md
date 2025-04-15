@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aravind405
+- 👋 Hi, I’m @AravindMyathar
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning languages 
 
